@@ -14,7 +14,7 @@ Here are some ideas to get you started:
   
 - 💬 Ask me about data
   
-- 📫 How to reach me [linkedin](https://www.linkedin.com)
+- 📫 How to reach me [linkedin](https://www.linkedin.com/in/mary-nwosu-6750b3223/)
   
 - 😄 Pronouns She/Her
   
