@@ -2,8 +2,6 @@
 
 My name is mary
 
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on becoming a data analyst
  
 - 🌱 I’m currently learning data analyst
